@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with premium leverage trading bot Strategy | risk-management + scalping, the #1 leverage trading bot. Includes risk-management and scalping for a smoother and
 
 
 
